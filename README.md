@@ -1,0 +1,1 @@
+# Lolminer-2miners-Script
